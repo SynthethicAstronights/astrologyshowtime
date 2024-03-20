@@ -5,5 +5,7 @@
 - I'm not much of a social person but i like
   to chat.
 - I am always busy with school or not.
-- Creator of a secret fandom.
+- 18+ Please iwc.
 - Go check my patreon instead.
+- Straight.
+- Hello.
