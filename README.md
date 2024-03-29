@@ -1,8 +1,9 @@
 - REMINDER: **This is an update of my Sunset.md (Formerly Readme.md)**
-- Hello, it is i. @astrologyshowtime [FORMERLY]/-CURRENT ACCOUNT NAME- or you may aswell call me my nicknames.
+- Hello, it is i. @astrologyshowtime [FORMERLY]/@SyntheticAstronights or you may aswell call me my nicknames.
 - ? Nicknames: Astrosun , Scaventsun [FRIENDS ONLY] , RadiantGlow or Radiant.
 - 16+ please iwc!
 - I won't usually interact at first but i can interact back if you interact first!
 - My tiktok is @axel_011a, if you don't believe me please go to my patreon.
 - I am 65% Offtab each week. Either because im doing something like drawing etc. Or got bored that i am watching tiktoks.
 - I like to draw but i don't post it online.
+- My doodles look like %*#$
