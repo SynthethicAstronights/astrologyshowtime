@@ -1,5 +1,5 @@
 - REMINDER: **This is an update of my Sunset.md (Formerly Readme.md)**
-- Hello, it is i. @astrologyshowtime or you may aswell call me my nicknames.
+- Hello, it is i. @astrologyshowtime [FORMERLY]/-CURRENT ACCOUNT NAME- or you may aswell call me my nicknames.
 - ? Nicknames: Astrosun , Scaventsun [FRIENDS ONLY] , RadiantGlow or Radiant.
 - 16+ please iwc!
 - I won't usually interact at first but i can interact back if you interact first!
