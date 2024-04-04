@@ -4,6 +4,7 @@
 - 16+ please iwc!
 - I won't usually interact at first but i can interact back if you interact first!
 - My tiktok is @axel_011a, if you don't believe me please go to my patreon.
-- I am 65% Offtab each week. Either because im doing something like drawing etc. Or got bored that i am watching tiktoks.
+- I'm not always active at all days, sometimes im doing school works, in school or either practicing.
 - I like to draw but i don't post it online.
-- My doodles look like %*#$
+- I **MAY** have social anxiety so please don't force me into some conversation.
+- Sometimes i'm offtab that long that it's rare to see me move other than sitting/laying in the same spot for more than a hour.
